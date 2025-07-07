@@ -16,4 +16,4 @@
 我们的平台每天都会更新最新内容，确保你紧跟潮流，不错过任何精彩时刻。
 无论你喜欢哪个类型，我们都能满足你的需求。立即进入，畅享日本AV的无限乐趣！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nhanha20250707/nhanha07 ）</span>
